@@ -1,4 +1,4 @@
-
+Smart IVPN Plugin | kill switch + server switching is the best IVPN plugin with kill switch and server switching. Secure and optimized.
 
 
 
