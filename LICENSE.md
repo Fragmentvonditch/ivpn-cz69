@@ -1,10 +1,10 @@
-Inteligente IVPN Complemento | interruptor de apagado + cambio de servidor es el mejor IVPN complemento con interruptor de apagado y cambio de servidor. Seguro y optimizado.
+
 
 
 
 ---
   
-  📦 **CLICK FOR DOWNLOAD NOW** | [DOWNLOAD NOW]( https://Fragmentvonditch.github.io/ivpn-cz69/) |
+  📦 **CLICK FOR DOWNLOAD NOW** | [DOWNLOAD NOW]( ) |
  |---------------------|----------------------:|
 
 
