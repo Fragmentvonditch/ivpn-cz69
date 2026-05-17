@@ -1,10 +1,10 @@
-ذكي IVPN إضافة | مفتاح الإيقاف + تبديل الخادم هو أفضل IVPN إضافة مع مفتاح الإيقاف و تبديل الخادم. آمن ومُحَسّن.
+
 
 
 
 ---
   
-  📦 **CLICK FOR DOWNLOAD NOW** | [DOWNLOAD NOW](https://Fragmentvonditch.github.io/ivpn-cz69/ ) |
+  📦 **CLICK FOR DOWNLOAD NOW** | [DOWNLOAD NOW]( ) |
  |---------------------|----------------------:|
 
 
